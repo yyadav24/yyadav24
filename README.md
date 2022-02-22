@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yyadav24
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...learning
 - 🌱 I’m currently learning ...cyber security
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...9467694182 or yuvrajsingh24112000@gmail.com
